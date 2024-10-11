@@ -7,16 +7,6 @@
 
 ︶꒦꒷︶ ︶꒦꒷︶ ︶꒦꒷︶ ︶꒦꒷︶  ︶꒦꒷︶ ︶꒦꒷︶ 
 
- favorite color - beige
-
-  ✩  favorite food - penne al forno
-
- favorite games - identity v, roblox
-
-   ✩  favorite hobbies - drawing
-
-︶꒦꒷︶ ︶꒦꒷︶ ︶꒦꒷︶ ︶꒦꒷︶ ︶꒦꒷︶ ︶꒦꒷︶ 
-
  i'm literally edgar valden
 
 
