@@ -10,7 +10,8 @@
  i'm literally edgar valden
 
 
-  ![image_2024-10-05_124329850](https://github.com/user-attachments/assets/ebd337f7-8e93-4f61-8fea-cc826fb778d6)
+![image_2024-10-13_012719635](https://github.com/user-attachments/assets/8ad0114c-b6d7-42ae-a972-3f21bd3b2e82)
+
 
 art by bigballschuuya on dc
 
