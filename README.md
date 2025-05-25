@@ -1,2 +1,1 @@
-fuckass images 🥀
-![Image](https://github.com/user-attachments/assets/a9ef091f-d388-4435-8198-5f5e552dd3a4)
+![Image](https://github.com/user-attachments/assets/9f59c6b1-42f8-4401-b0be-9ebb4c1180e7)
