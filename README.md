@@ -1,5 +1,8 @@
-  ㅤㅤㅤㅤㅤㅤ⠀ㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤ⠀ㅤ ㅤㅤㅤ⠀⠀i do not know how to code
+ ʚㅤ With the red stone as the medium and himself as the sacrifice, he blends the organic and inorganic materials in a golden ratio and adds a 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤfinishing touch for aesthetics - a miracle was thus born. ㅤ𝅄
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ![Image](https://github.com/user-attachments/assets/d39932df-a547-4e6e-936a-95dc49e33269)
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ![image](https://github.com/user-attachments/assets/5c7f5281-81b2-4773-bac2-51fa3d5f5de9)
+
