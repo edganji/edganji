@@ -1,8 +1,7 @@
- ʚㅤ With the red stone as the medium and himself as the sacrifice, he blends the organic and inorganic materials in a golden ratio and 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤadds a finishing touch for aesthetics - a miracle was thus born. ㅤ𝅄
+ㅤㅤㅤㅤㅤㅤㅤ 𝖤𝗏𝖾𝗇𝗍𝗎𝖺𝗅𝗅𝗒ㅤ,ㅤ𝖨ㅤ𝗎𝗇𝖽𝖾𝗋𝗌𝗍𝖺𝗇𝖽ㅤ𝗁𝗈𝗐ㅤ𝗆𝖺𝗇yㅤ𝗅𝗂𝖾𝗌ㅤ𝗉𝖾𝗈𝗉𝗅𝖾ㅤ𝖼𝖺𝗇ㅤ𝗍𝖾𝗅𝗅ㅤ𝗈𝗇𝗅𝗒ㅤ𝖿𝗈𝗋ㅤ𝖺ㅤl𝗂𝗍𝗍𝗅𝖾ㅤ𝖻𝖾𝗇𝖾𝖿𝗂𝗍ㅤ.
 
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ![image](https://github.com/user-attachments/assets/5c7f5281-81b2-4773-bac2-51fa3d5f5de9)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ![Image](https://github.com/user-attachments/assets/07a2797f-c8db-4a1d-ae83-1b3d802e93cc)
 
