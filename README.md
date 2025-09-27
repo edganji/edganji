@@ -1,6 +1,5 @@
 ㅤㅤㅤㅤㅤ"ㅤ𝖤𝗏𝖾𝗇𝗍𝗎𝖺𝗅𝗅𝗒ㅤ,ㅤ𝖨ㅤ𝗎𝗇𝖽𝖾𝗋𝗌𝗍𝖺𝗇𝖽ㅤ𝗁𝗈𝗐ㅤ𝗆𝖺𝗇yㅤ𝗅𝗂𝖾𝗌ㅤ𝗉𝖾𝗈𝗉𝗅𝖾ㅤ𝖼𝖺𝗇ㅤ𝗍𝖾𝗅𝗅ㅤ𝗈𝗇𝗅𝗒ㅤ𝖿𝗈𝗋ㅤ𝖺ㅤl𝗂𝗍𝗍𝗅𝖾ㅤ𝖻𝖾𝗇𝖾𝖿𝗂𝗍ㅤ.ㅤ"ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-   <img width="620" height="300" alt="Image" src="https://github.com/user-attachments/assets/05a7d72a-f868-47f1-b3d8-f217af99e7b3" />
-
+<img width="5982" height="2072" alt="Image" src="https://github.com/user-attachments/assets/cfa52b57-4886-4f55-a32a-a9dab68f8140" />
 
 
 ㅤ 𝖤𝖽𝗀𝖺𝗋ㅤ𝗁𝖺𝗌ㅤ𝗅𝗈𝗇𝗀ㅤ𝖻𝖾𝖾𝗇ㅤ𝗐𝖾𝖺𝗋𝗒ㅤ𝗈𝖿ㅤ𝗍𝗁𝖾ㅤ𝗀𝗈𝗌𝗌𝗂𝗉𝗌ㅤ𝖺𝗇𝖽ㅤ𝗁𝗒𝗉𝗈𝖼𝗋𝗂𝗌yㅤ.ㅤ𝖳𝗁𝖾ㅤo𝗇𝗅𝗒ㅤ𝗍𝗁𝗂𝗇𝗀ㅤ𝗂𝗇ㅤ𝗍𝗁𝗂𝗌ㅤ𝗐𝗈𝗋𝗅𝖽ㅤ𝗍𝗁𝖺𝗍ㅤ𝗂𝗌ㅤ𝗐𝗈𝗋𝗍𝗁𝗒ㅤㅤㅤㅤ
