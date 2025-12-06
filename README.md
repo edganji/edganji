@@ -1,16 +1,12 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=your-github-username&label=paintings&color=845a5a)
 
-ㅤㅤㅤㅤ&#x202b;   $${\color{#0d1117}.}$$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=MonteCarlo&weight=800&size=30&duration=5002&pause=1000&color=6F4A4A&background=FFFFFF00&width=450&height=60&lines=red+is+gentle.)](https://git.io/typing-svg)
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="648" height="536" alt="Image" src="https://github.com/user-attachments/assets/04643d9a-3b6c-4d15-b317-6b3f183d7ad7" />
 
 
-ㅤㅤㅤㅤ&#x202b;   $${\color{#c7b19d}e𝚟𝚎𝚗𝚝𝚞𝚊𝚕𝚕𝚢ㅤ,ㅤ𝚒ㅤ𝚞𝚗𝚍𝚎𝚛𝚜𝚝𝚊𝚗𝚍}$$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=your-github-username&label=paintings&color=c7b19d)
 
-ㅤㅤㅤㅤ&#x202b;   $${\color{#c7b19d}𝚑𝚘𝚠ㅤ𝚖𝚊𝚗𝚢ㅤ𝚕𝚒𝚎𝚜ㅤ𝚙𝚎𝚘𝚙𝚕𝚎ㅤ𝚌𝚊𝚗ㅤ𝚝𝚎𝚕𝚕}$$
-
-ㅤㅤㅤㅤ&#x202b;   $${\color{#c7b19d}𝚘𝚗𝚕𝚢ㅤ𝚏𝚘𝚛ㅤ𝚊ㅤ𝚕𝚒𝚝𝚝𝚕𝚎ㅤ𝚋𝚎𝚗𝚎𝚏𝚒𝚝ㅤ.}$$
-
-  <img align="left" width="400" height="400" src="https://github.com/user-attachments/assets/72039301-96be-42e2-befb-fc8e375a7d12" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=313g2fvqq5xv2uapj4pfsvujfawe&cover_image=true&theme=compact&show_offline=true&background_color=8e6664&interchange=true&profanity=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=313g2fvqq5xv2uapj4pfsvujfawe&redirect=true)ㅤ
   
-ㅤ&#x202b;  $${\color{#c7b19d}—ㅤ𝚎𝚍𝚐𝚊𝚛ㅤ𝚟𝚊𝚕𝚍𝚎𝚗}$$ 
 
   
