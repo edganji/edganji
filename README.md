@@ -6,6 +6,10 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤㅤ![](https://komarev.com/ghpvc/?username=your-github-username&label=paintings&color=c7b19d)
 
+$${\color{#0d1117}.}$$
+
+$${\color{#0d1117}.}$$
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=313g2fvqq5xv2uapj4pfsvujfawe&cover_image=true&theme=compact&show_offline=true&background_color=8e6664&interchange=true&profanity=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=313g2fvqq5xv2uapj4pfsvujfawe&redirect=true)ㅤ
   
 
