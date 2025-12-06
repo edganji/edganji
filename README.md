@@ -4,7 +4,7 @@
 ㅤㅤㅤㅤㅤㅤ<img width="648" height="536" alt="Image" src="https://github.com/user-attachments/assets/04643d9a-3b6c-4d15-b317-6b3f183d7ad7" />
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤㅤ![](https://komarev.com/ghpvc/?username=your-github-username&label=paintings&color=c7b19d)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ   ㅤㅤ![](https://komarev.com/ghpvc/?username=your-github-username&label=paintings&color=c7b19d)
 
 $${\color{#0d1117}.}$$
 
