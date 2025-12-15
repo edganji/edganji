@@ -7,7 +7,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Image](https://github.com/user-attachments/assets/13d76b68-4894-4c83-9bb8-be45cb0cf863)
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ   ㅤㅤ![](https://komarev.com/ghpvc/?username=your-github-username&label=paintings&color=8b7658)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ    ㅤㅤ![](https://komarev.com/ghpvc/?username=your-github-username&label=信件开启器&color=8b7658)
 
 $${\color{#0d1117}.}$$
 
