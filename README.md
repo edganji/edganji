@@ -14,7 +14,8 @@ $${\color{#0d1117}.}$$
 
 $${\color{#0d1117}.}$$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=313g2fvqq5xv2uapj4pfsvujfawe&cover_image=true&theme=compact&show_offline=false&background_color=e8ebee&interchange=true&profanity=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=313g2fvqq5xv2uapj4pfsvujfawe&redirect=true)ㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤ  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=313g2fvqq5xv2uapj4pfsvujfawe&cover_image=true&theme=natemoo-re&show_offline=false&background_color=485853&interchange=true&bar_color=2e3734&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=313g2fvqq5xv2uapj4pfsvujfawe&redirect=true)
+
   
 
   
