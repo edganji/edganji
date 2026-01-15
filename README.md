@@ -3,9 +3,7 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<div align="center">
-  <img src="[Image](https://github.com/user-attachments/assets/86fbb424-fdf3-4ae4-9028-ee2972a0a834)">
-</div>!
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ![Image](https://github.com/user-attachments/assets/86fbb424-fdf3-4ae4-9028-ee2972a0a834)
 
 
 $${\color{#0d1117}.}$$
