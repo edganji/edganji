@@ -3,10 +3,9 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ             ㅤㅤㅤㅤㅤ                        ㅤㅤㅤ![Image](https://github.com/user-attachments/assets/86fbb424-fdf3-4ae4-9028-ee2972a0a834)
-
-
-$${\color{#0d1117}.}$$
+<p align="center">
+  <img width="620" height="400" src="https://github.com/user-attachments/assets/86fbb424-fdf3-4ae4-9028-ee2972a0a834">
+</p>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ     ㅤ![](https://komarev.com/ghpvc/?username=your-github-username&label=letter_opemers&color=410e00)
 
