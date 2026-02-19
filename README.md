@@ -11,7 +11,10 @@ $${\color{#0d1117}.}$$
 
 $${\color{#0d1117}.}$$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤ 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=313g2fvqq5xv2uapj4pfsvujfawe&cover_image=true&theme=compact&show_offline=true&background_color=D8EBEB&interchange=true&profanity=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=313g2fvqq5xv2uapj4pfsvujfawe&redirect=true)ㅤ
+
+
+
   
 
   
