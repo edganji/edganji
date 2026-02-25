@@ -1,5 +1,5 @@
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Shadows+Into+Light&size=15&pause=950&color=6c7256&vCenter=true&width=435&lines=you+know+that+i+cant+stay...;you're+just+gonna+hold+on+to+the+hope;that+we'll+be+something+one+day.)](https://git.io/typing-svg)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Shadows+Into+Light&size=15&pause=600&color=6c7256&vCenter=true&width=435&lines=you+know+that+i+cant+stay...;you're+just+gonna+hold+on+to+the+hope;that+we'll+be+something+one+day.)](https://git.io/typing-svg)
 
 
 
