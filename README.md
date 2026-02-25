@@ -1,17 +1,17 @@
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Shadows+Into+Light&size=15&pause=950&color=B2CAD36D&vCenter=true&width=435&lines=what+good+is+a+happy+ever+after%3F;when+it+all+ends+when+youre+done+after...)](https://git.io/typing-svg)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Shadows+Into+Light&size=15&pause=950&color=6c7256&vCenter=true&width=435&lines=you+know+that+i+cant+stay...;you're+just+gonna+hold+on+to+the+hope;that+we'll+be+something+one+day.)](https://git.io/typing-svg)
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Image](https://github.com/user-attachments/assets/8f9e1001-351c-4b3a-9ce8-df80fc411935)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/512ca94b-e555-4c99-b915-17c515a1196b" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ     ㅤ![](https://komarev.com/ghpvc/?username=your-github-username&label=angels&color=D8EBEB)
-
-$${\color{#0d1117}.}$$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ     ㅤ![](https://komarev.com/ghpvc/?username=your-github-username&label=cherries&color=8b344e)
 
 $${\color{#0d1117}.}$$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=313g2fvqq5xv2uapj4pfsvujfawe&cover_image=false&theme=compact&show_offline=false&background_color=D8EBEB&interchange=true&profanity=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=313g2fvqq5xv2uapj4pfsvujfawe&redirect=true)ㅤ
+$${\color{#0d1117}.}$$
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=313g2fvqq5xv2uapj4pfsvujfawe&cover_image=true&theme=compact&show_offline=false&background_color=6c7256&interchange=true&profanity=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=313g2fvqq5xv2uapj4pfsvujfawe&redirect=true)ㅤ
 
 
 
