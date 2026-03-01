@@ -1,9 +1,14 @@
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Shadows+Into+Light&size=15&pause=300&color=6c7256&vCenter=true&width=435&lines=you+know+that+i+cant+stay...;you're+just+gonna+hold+on+to+the+hope;that+we'll+be+something+one+day.)](https://git.io/typing-svg)
+ㅤㅤㅤㅤㅤ![Image](https://github.com/user-attachments/assets/00b870e1-0355-4c0b-bdfb-a3aaa94a85ac)
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Shadows+Into+Light&size=15&pause=100&color=6c7256&vCenter=true&width=435&lines=i+know+i+shouldn't+play+with+your+feelings,;BUT+I.;just+want+to+be+desired+and+pretty...+♪)](https://git.io/typing-svg)
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/512ca94b-e555-4c99-b915-17c515a1196b" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="548" height="436" alt="Image" src="https://github.com/user-attachments/assets/3065881b-0fd6-439c-8ed9-e259e1711fbe" />
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<sup><sub>commissioned by ryyuyuyuuu on discord :o</sub></sup>
+
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ     ㅤ![](https://komarev.com/ghpvc/?username=your-github-username&label=cherries&color=8b344e)
 
