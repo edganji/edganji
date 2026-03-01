@@ -5,7 +5,7 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="548" height="436" alt="Image" src="https://github.com/user-attachments/assets/3065881b-0fd6-439c-8ed9-e259e1711fbe" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="548" height="436" alt="Image" src="https://github.com/user-attachments/assets/3065881b-0fd6-439c-8ed9-e259e1711fbe" />
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<sup><sub>commissioned by ryyuyuyuuu on discord :o</sub></sup>
 
