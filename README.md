@@ -10,6 +10,10 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<sup><sub>“i just want to see... that scenery from the lead.”</sub></sup>
 
+$${\color{#0d1117}.}$$
+
+$${\color{#0d1117}.}$$
+
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ     ㅤ![](https://komarev.com/ghpvc/?username=your-github-username&label=carrots&color=a47b71)
 
